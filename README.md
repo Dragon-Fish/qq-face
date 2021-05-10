@@ -1,1 +1,1 @@
-# qq-face
+➡️ https://github.com/koishijs/QQ-Face ⬅️
